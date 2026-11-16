@@ -1,4 +1,4 @@
-HELLO!! :DD 
+HELLO!! :DD (YES. MY GITHUB IS VERY BAD.)
 
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/81fb00c8-b9bc-4161-a44f-c047a98b4599" />
 
