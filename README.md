@@ -1,6 +1,6 @@
 HELLO!! :DD 
 
-<img width="736" height="414" alt="imag/github.com/user-attachments/assets/5551ef72-aed3-47bd-8a44-eace711a4f2d" />e" src="https:/
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/81fb00c8-b9bc-4161-a44f-c047a98b4599" />
 
 Im THE Silver The hedgehog! (4 PONY TOWN PURPOSES ONLY LMAOO) 
 
