@@ -18,3 +18,6 @@ HELLO!! :DD (YES. MY GITHUB IS VERY BAD.)
 
                       HONORABLE MENTIONED! MY COOLIO AND AWESOME FRIENDS: KOLLIE, FLEET, AND TAILS. GO CHECK EM OUT THEYRE VERY AMAZING!
 
+<img width="626" height="1199" alt="image" src="https://github.com/user-attachments/assets/e46a5627-9ab8-40a1-948b-f09232c2bb6f" /> 
+
+                                                             I THINK THATS AL, TYSM 4 READING!
