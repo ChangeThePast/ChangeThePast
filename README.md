@@ -16,11 +16,11 @@ HELLO!! :DD (YES. MY GITHUB IS VERY BAD.)
 
 <img width="735" height="529" alt="image" src="https://github.com/user-attachments/assets/70b67ed3-38b2-4f05-ac4d-786537e743f3" />
 
-   my fictkins are like,,THEYRE A LOT. so ill js list them! - Silver the hedeghog (STH), KNUCKLES ECHIDNA! (STH), Kel (omori), sometimes sunny (omori),
+     my fictkins are like,,THEYRE A LOT. so ill js list them! - Silver the hedeghog (STH), KNUCKLES ECHIDNA! (STH), Kel (omori), sometimes sunny (omori),
 
     Daisuke (mouthwashing), JOE TAZUNA! (your turn to die), Poison Sonic exe (sonic originals), sans (Undertale), finn (dandys world) and Sprout! ALSO IF URE 
 
-                          ONE OF THESE KINNIes.,. YALL R LIKE SO COOOOOLL SO ITD BE AN HONOR IF U INT ME IF U KIN THEM :D 
+                             ONE OF THESE KINNIes.,. YALL R LIKE SO COOOOOLL SO ITD BE AN HONOR IF U INT ME!!
 
                       HONORABLE MENTIONED! MY COOLIO AND AWESOME FRIENDS: KOLLIE, FLEET, AND TAILS. GO CHECK EM OUT THEYRE VERY AMAZING!
 
