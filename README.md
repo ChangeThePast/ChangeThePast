@@ -8,7 +8,7 @@ HELLO!! :DD (YES. MY GITHUB IS VERY BAD.)
 
         also js some extra: im very very very shy and awkward,, heavily  introvert too so APOLOGIES IF I TALK CONFUSING SOMETIMES, Im in a lottt of                                                 fandoms,, and im a huge multishipper! so i liek all the ships.. as long as its legal. 
 
-            BASIC DNI CRITERIA! [eugh go away] liekk...dont be a absolute rude person, dont go mking fun of my friends, ill beat ur ahh, BEING A COMPLETE                                                                  WEIRDO EWW, p*do,and other problematic stuff. 
+            BASIC DNI CRITERIA! [eugh go away] liekk...dont be a absolute rude person, dont go mking fun of my friends, ill beat ur ahh, BEING A COMPLETE                                          WEIRDO EWW, p*do, liars. i loathe those type of people. (unless its 4 gud reason) and other problematic stuff. 
 
                   MY STRAWPAGE IS RIGHT IN MY BIO SO IF U WANT TO READ MORE ABT ME, CLICK IT! SIGNING MY STRAW WOULD BE APPRECIATED! LOVE U BTW
 
