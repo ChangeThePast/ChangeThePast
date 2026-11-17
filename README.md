@@ -18,7 +18,7 @@ HELLO!! :DD (YES. MY GITHUB IS VERY BAD.)
 
      my fictkins are like,,THEYRE A LOT. so ill js list them! - Silver the hedeghog (STH), KNUCKLES ECHIDNA! (STH), Kel (omori), sometimes sunny (omori),
 
-  Hero (Omori) except 4 being a cook,,i suck at cooking bru.,. Daisuke (mouthwashing), JOE TAZUNA! (your turn to die), Poison Sonic exe (sonic originals), 
+    Hero (Omori) except 4 being a cook,,i suck at cooking bru.,. Daisuke (mouthwashing), JOE TAZUNA! (your turn to die), Poison Sonic exe (sonic originals), 
                                       
      sans (Undertale), finn (dandys world) and Sprout! ALSO IF YOURE ONE OF THESE KINNIes.,. YALL R LIKE SO COOOOOLL SO ITD BE AN HONOR IF U INT ME!!
 
