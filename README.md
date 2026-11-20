@@ -6,8 +6,12 @@ HELLO!! :DD (YES. MY GITHUB IS VERY BAD.)
 
                C+H ARE TOTALLY ABSOLUTELY OKAY WITH ME! (in fact id be happy...) offtab most of the time! but js whisp if u wanna int :DD
 
-     also js some extra: im very very very shy and awkward,, heavily  introvert too so APOLOGIES IF I TALK CONFUSING SOMETIMES, Im in a lottt of                                                
-                            fandoms,, and im a huge multishipper! so i liek all the ships.. as long as its legal. 
+              also js some extra: im very very very shy and awkward,, heavily  introvert too so APOLOGIES IF I TALK CONFUSING SOMETIMES! 
+        im struggling with social anxiety lately so i dont rlly have the confidence to approach sum1 and int .. (i prefer w2i over public chat!) 
+              so if u wnna b friendz then PLEASE INT FIRST! ID B GLADLY TO B FRIENDS WITH YOU!! :DD ISWEARIMAVERYFUNPERSONAHAHA. 
+                                  AND my english is very bad sumtimes..since i live in another country so ya!
+     
+                    Im in a lottt of fandoms,, and im a huge multishipper! so i liek all the ships.. as long as its legal. 
 
          BASIC DNI CRITERIA! [eugh go away] liekk...dont be a absolute rude person, dont go mking fun of my friends, ill beat ur ahh, BEING A COMPLETE                            
            WEIRDO EWW, p*do, liars. i loathe those type of people. (unless its 4 gud reason) but still dont do that :( and other problematic stuff. 
