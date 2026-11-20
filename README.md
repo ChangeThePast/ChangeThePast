@@ -9,7 +9,7 @@ HELLO!! :DD (YES. MY GITHUB IS VERY BAD.)
               also js some extra: im very very very shy and awkward,, heavily  introvert too so APOLOGIES IF I TALK CONFUSING SOMETIMES! 
         im struggling with social anxiety lately so i dont rlly have the confidence to approach sum1 and int .. (i prefer w2i over public chat!) 
               so if u wnna b friendz then PLEASE INT FIRST! ID B GLADLY TO B FRIENDS WITH YOU!! :DD ISWEARIMAVERYFUNPERSONAHAHA. 
-                                  AND my english is very bad sumtimes..since i live in another country so ya!
+                                        AND my english is very bad !! since i live in another country so ya!
      
                     Im in a lottt of fandoms,, and im a huge multishipper! so i liek all the ships.. as long as its legal. 
 
