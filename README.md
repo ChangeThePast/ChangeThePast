@@ -24,9 +24,10 @@ HELLO!! :DD (YES. MY GITHUB IS VERY BAD.)
 
     Hero (Omori) except 4 being a cook,,i suck at cooking bru.,. Daisuke (mouthwashing), JOE TAZUNA! (your turn to die), Poison Sonic exe (sonic originals), 
                                       
-     sans (Undertale), finn (dandys world) and Sprout! ALSO IF YOURE ONE OF THESE KINNIes.,. YALL R LIKE SO COOOOOLL SO ITD BE AN HONOR IF U INT ME!!
+                                     sans (Undertale), Infected (Regretevator) finn (dandys world) and Sprout! 
+                       ALSO IF YOURE ONE OF THESE KINNIes.,. YALL R LIKE SO COOOOOLL SO ITD BE AN HONOR IF U INT ME!!
 
-                      HONORABLE MENTIONED! MY COOLIO AND AWESOME FRIENDS: KOLLIE, FLEET, AND TAILS. GO CHECK EM OUT THEYRE VERY AMAZING!
+               HONORABLE MENTIONED! MY COOLIO AND AWESOME FRIENDS: KOLLIE, FLEET, AND TAILS. GO CHECK EM OUT THEYRE VERY AMAZING!
 
 <img width="626" height="1199" alt="image" src="https://github.com/user-attachments/assets/e46a5627-9ab8-40a1-948b-f09232c2bb6f" /> 
 
